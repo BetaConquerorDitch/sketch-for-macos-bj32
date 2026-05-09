@@ -1,4 +1,4 @@
-
+Sketch for macOS instant Panel - version history and custom brushes offers the most advanced Sketch for macOS panel, with version history and custom brushes. Ideal for
 
 
 
